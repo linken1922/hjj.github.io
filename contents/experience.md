@@ -1,21 +1,17 @@
-### **XDF Teaching Assistant**  
-**July 2024- November 2024 | XDF**  
+###**In the Freshman Cup at HUST**  
+**From September to October 2024| HUST**  
 
-Responsible for managing the class and assisting in teaching during the teacher's teaching work.
+Played basketball in the Freshman Cup.  
 
-#### Key Contributions:  
-- Assist multiple teachers in completing daily teaching tasks.  
-- Assisted the campus in completing multiple class renewals. 
-- Assist head teachers who have not been assigned teaching assistants in conducting parent teacher conferences.
+####Main Contributions:  
+-Uniting teammates  
+-Advanced to the quarterfinals with the team.
 
----
+###**在华科打新生杯**
+**2024年9月-10月|华科**
 
-### **新东方助教**  
-**2024年7月 – 2024年11月 | 新东方**  
+在新生杯打篮球。
 
-负责在教师进行教学工作时管理班级，并辅助教学。
-
-#### 主要贡献:  
-- 帮助多名老师完成日常教学任务。  
-- 协助校区多次完成续班工作。  
-- 帮助未分配到助教的主教老师进行家长会。
+####主要贡献:
+-团结队友
+-与队友一起打进八强
